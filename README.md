@@ -1,5 +1,5 @@
 # 💫 About Me:
-<br>I'm Looking to help with people who want to make cheats for minecraft<br>I'm currently learning GO
+I'm Looking to help with people who want to make cheats for minecraft<br>I'm currently learning GO
 
 
 ## 🌐 Socials:
